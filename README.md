@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SofHK24![IMG_20240704_132750](https://github.com/SofHK24/SofHK24/assets/174808059/2e3d60bf-0381-453c-a1c1-0a69e9762af5)
+- 👋 Hi, I’m @SofHK24!
 
 - 👀 I’m interested in drawing and writing 
 - 🌱 I’m currently learning coding
